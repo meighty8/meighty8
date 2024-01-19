@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @meighty8
 - 👀 I’m interested in Motorcycles, Custom Keyboards, Computer Systems, DIY Furniture
-- 🌱 I’m currently learning better coding
+- 🌱 I’m currently learning to code better
 - 💞️ I’m looking to collaborate on some future projects
 - 📫 How to reach me mar.schorro@gmail.com
 - 😄 Pronouns: The
